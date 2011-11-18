@@ -159,7 +159,7 @@ Esta Comisión tendrá a su cargo todo lo relativo al acto eleccionario, así co
 La misma cesará en sus funciones una vez que los nuevos integrantes de la Comisión Directiva y Comisión Fiscal hayan tomado posesión de sus cargos. 
 
 ## CAPÍTULO V – ELECCIONES
-ARTÍCULO 22. (Oportunidad y requisitos). El acto eleccionario para miembros de la Comisión Directiva y de la Comisión Fiscal se efectuará cada tres años, dentro de los treinta días siguientes a la celebración de la Asamblea General correspondiente. 
+ARTÍCULO 22. (Oportunidad y requisitos). El acto eleccionario para miembros de la Comisión Directiva y de la Comisión Fiscal se efectuará cada un año, dentro de los treinta días siguientes a la celebración de la Asamblea General correspondiente. 
 El voto será secreto y se emitirá a través de listas que deberán ser registradas ante la Comisión Electoral, con anticipación mínima de ocho días a la fecha de la elección. 
 Deberán formularse listas separadas para Comisión Directiva y Fiscal, con indicación del candidato a la Presidencia de cada una. Para ser admitida una lista deberá contener la firma de los candidatos y de dos socios activos más. 
 Los cargos serán distribuidos por el sistema de representación proporcional.
