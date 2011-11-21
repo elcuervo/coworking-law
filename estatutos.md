@@ -1,7 +1,7 @@
 # ESTATUTO DE LA ASOCIACIÓN CIVIL “Coworking Montevideo” (CWKMVD)
 
 Acta N° 1.- En Montevideo, el  de [……]. del año 2011, se reúnen las personas abajo firmantes, bajo la 
-Presidencia de Santiago Fagnoni, cédula de identidad [……], actuando en Secretaría Pablo Astigarraga,
+Presidencia de Santiago Fagnoni, cédula de identidad 3.234.661-6, actuando en Secretaría Pablo Astigarraga,
 cédula de identidad 4.071.701-3 quienes deciden fundar una asociación civil que se denominará Coworking Montevideo
 y cuyos estatutos, que por unanimidad aprueban, serán los siguientes:
 
